@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **Android, Flutter**
 
-- 📫 How to reach me **mjahid2233@gmail.com**
+- 📫 How to reach me **mjahid2211@gmail.com**
 
 - ⚡ Fun fact **When I am hungover I want an ice-cold coke**
 
